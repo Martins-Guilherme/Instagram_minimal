@@ -1,1 +1,1 @@
-![Instagram_minimal_17-10-24_Frent](https://github.com/user-attachments/assets/32250207-0f52-4d63-b0c2-d5780cdac472)
+![Instagram_minimal_17-10-24](https://github.com/user-attachments/assets/5ae1c3bb-0795-46e6-bc53-12c4a1c960b1)
